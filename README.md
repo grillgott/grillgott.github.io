@@ -2,10 +2,10 @@
 
 ### Discord
 
-Hier ist unser Discord: [https://t1p.de/BWB](https://t1p.de/BWB)
+Hier ist unser Discord: [t1p.de/BWB](https://t1p.de/BWB)
 
 ### Club-Einladung Brawl-Stars
-[Club-Einladung](https://link.brawlstars.com/invite/band/de?tag=2RV0YGJJ8&token=mafwwyxc)
+[Club-Einladung Tag: #2RV0YGJJ8](https://link.brawlstars.com/invite/band/de?tag=2RV0YGJJ8&token=mafwwyxc)
 
 ### Clubregeln
 - deutsche Sprache 
