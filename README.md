@@ -4,6 +4,9 @@
 
 Hier ist unser Discord: [https://t1p.de/BWB](https://t1p.de/BWB)
 
+### Club-Einladung Brawl-Stars
+[Club-Einladung](https://link.brawlstars.com/invite/band/de?tag=2RV0YGJJ8&token=mafwwyxc)
+
 ### Clubregeln
 - deutsche Sprache 
 
